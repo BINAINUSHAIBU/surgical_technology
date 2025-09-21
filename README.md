@@ -1,1 +1,0 @@
-# MGM-College-of-CS-IT-Nanded
